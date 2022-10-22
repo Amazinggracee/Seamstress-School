@@ -1,1 +1,1 @@
-# Seanstress-School
+# Seamstress-School
